@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Dushanthi Madhushika
+- 👀 I’m interested in both web and mobile application development
+- 🌱 I’m currently learning NLP, AI, ML and Data Mining stuffs which enhance my abilities in the field
+- 📧 To contact me just send me a mail dushanthimadhushika3@gmail.com
+- 💻 Website https://dushanthimadhushik.wixsite.com/dushanthi
+- 🖥 LinkedIn https://www.linkedin.com/in/dushanthi-madhushika/
+- 😎 I'm almost everywhere, just say me hello
